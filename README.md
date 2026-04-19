@@ -1,6 +1,4 @@
-feli or illuga 
 
-main is pruita !! 
 basic dni
 
 
@@ -12,11 +10,7 @@ yes im sensitive so be nice
 JUST because im sensitive doesnt mean i wont warm up
 
 
-I LOVE MY CHUDBUCKET!! (Romachan + Romechan) 
-if ure mean to them or make them uncomfy
-i will unadd u ok! 🤍#LOVEMYCHUDS
+I m schziophrenic and i hate when ppl say
+their schizoposting
+UR NOT SCHIZO #GOAWAY
 
-NS england yumeshipper
-
-
-loving my f/o!!!!! and my hot beautiful wife SUgar
