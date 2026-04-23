@@ -1,6 +1,7 @@
 
 basic dni
 
+i dont care abt most things!!please just be NORMAAALLL 🥹🥹🥹🥹🌻🌻🌻
 
  ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=faeIight&color=yellow)
 
