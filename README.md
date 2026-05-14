@@ -11,7 +11,6 @@ yes im sensitive so be nice
 JUST because im sensitive doesnt mean i wont warm up
 
 
-I m schziophrenic and i hate when ppl say
-their schizoposting
-UR NOT SCHIZO #GOAWAY
 
+#LOVE #IMCUTE #OK? #LETSBE ... FRIENDS!!! @everyone 
+ i might be a bit fixated on taimc im so sorry friends thjats judt aww hes so 😭😭imsickimsick goodbyeeveryone #FOREVER i like daisygrove a lot..i like d
