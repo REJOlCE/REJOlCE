@@ -6,3 +6,5 @@ basic dni okay? be normal ok? #okay.
 
 id rather shoot myself then actually make a cute readme #soawry 
 PLEASE READ MY EXTENDED ON THE RENTRY.
+
+I reallyy like daisygrove yk? thats important, i love daisy grove. i love daisygrove I LOVE TAIMC HES SO CFREAKING CUTE IM GOING TO CRY
